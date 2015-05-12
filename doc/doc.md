@@ -71,3 +71,7 @@ Rabu, 16 Maret 2015
   Agenda: Development 1.0 Alpha dan dokumentasi aplikasi.
 ###UTS
 
+Sisanya mana Vans???
+
+Lupa ya.....
+
